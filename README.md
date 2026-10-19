@@ -40,4 +40,4 @@
 </p>
 
 ### 🤝 Connect with me
-- 💼 [LinkedIn](https://www.linkedin.com/in/tomvarghese-mca)
+- 💼 [LinkedIn](https://www.linkedin.com/in/tom-varghese-mca?utm_source=share_via&utm_content=profile&utm_medium=member_android)
